@@ -1,2 +1,0 @@
-# Carlos-Rodriguez
-Personal site
